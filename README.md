@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning Web Development and other programming languages
 
-- 📫 How to reach me **islam16044@gmail.com**
+- 📫 How to reach me **islamkaya@proton.me**
 
 - ⚡ Fun fact :- Movies and Video Games
 
